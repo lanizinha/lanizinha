@@ -1,0 +1,5 @@
+- 👋 Oi,me chamo alanis
+- 👀  tenho 17 anos, daqui a 7 meses faço 18 anos 
+- 🌱  gosto muito de sair para comer 
+- 💞️  tenho um namorado agroboy, fazemos muitas coisas na roça, como cuidar dos cabritos 
+-👨‍🎓   frequento o 2 ano do ensino medio na escola arnaldo busatto
